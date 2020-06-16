@@ -27,3 +27,5 @@
 > *Sheila: trying to hide her disdain Oh ya,. About that, I have a boyfriend. (She doesn’t).*
 >
 > *John (in his thoughts): Idk, I guess we’re just really clashy.*
+
+[![HitCount](http://hits.dwyl.com/SpongeNobody/SpongeNobody/Clashy.svg)](http://hits.dwyl.com/SpongeNobody/SpongeNobody/Clashy)
